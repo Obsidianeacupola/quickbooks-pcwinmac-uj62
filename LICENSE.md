@@ -1,4 +1,4 @@
-# 
+# Ultimate QuickBooks presets for Mac OS | VIP QuickBooks presets for PC Windows. Featuring mileage tracking and policy compliance — optimized for maximum performance on every platform.
 
 
 
